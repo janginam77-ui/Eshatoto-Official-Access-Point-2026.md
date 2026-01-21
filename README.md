@@ -9,3 +9,4 @@ Portal Utama: Akses terpusat dapat ditemukan melalui domain eshago.space.
 Layanan Bantuan: Hubungi CS resmi jika Anda menemui kendala pada akses login.
 
 Link Akses Valid: Hubungi pusat informasi di eshatoto atau kunjungi https://eshago.space untuk mendapatkan pembaruan tautan terbaru.
+paduan lengkap disini https://medium.com/@firman27012006/tips-memilih-portal-layanan-pelanggan-eshatoto-yang-responsif-studi-kasus-eshago-b18a3b5df0ab
